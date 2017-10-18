@@ -11,6 +11,7 @@
 - 1 1/4 cups milk
 - 2 egg
 - 3 tablespoons butter, melted
+- vanalles
 
 ## Preparation
 
